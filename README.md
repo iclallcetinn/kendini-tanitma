@@ -1,0 +1,1 @@
+# kendini-tanitma
